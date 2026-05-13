@@ -5,7 +5,7 @@
 Need a premium creative agency website?
 
 📩 Email: clientforgestudio@gmail.com / sudhakarrali516@gmail.com
-💼 Portfolio: https://netlify/sudhakarportfolio.com
+💼 Portfolio: https://sudhakar-portfolio06.netlify.app/
 
 ---
 
